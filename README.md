@@ -9,7 +9,7 @@ They hire people for 7days trial which is unpaid. but in reality people have to 
 
 ## Gain Solutions Ltd./ Regfire Solutions Ltd.
 
-##Venture solutions limited.
+## Venture solutions limited.
 Jomidar place, Fakirapool office.
 
 ## Thinky Storm 
