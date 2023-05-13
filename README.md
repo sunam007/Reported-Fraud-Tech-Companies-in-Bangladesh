@@ -1,5 +1,5 @@
 # Reported-Fraud-Tech-Companies-in-Bangladesh
-Users on the Talk.js Facebook group have reported several fraud tech companies. Some users have only mentioned the company names, while others have shared their personal experiences working for these alleged companies. I have compiled a list of company names with accompanying screenshots. Please note that the comments provided are solely the experiences of the respective users. I would like to clarify that I cannot be held accountable for this list, as it is based on user submissions, and users are encouraged to conduct their own research before making any judgments.
+Users on the Talk.js Facebook group have reported several fraud tech companies. Some users have only mentioned the company names, while others have shared their personal experiences working for these alleged companies. I have compiled a list of company names with accompanying screenshots.
 
 #### Notice:
 >Please be advised that the list of fraud tech companies, shared by users on the Talk.js Facebook group, is for informational purposes only. I assume no liability for the accuracy or consequences of using this information. Users should conduct their own research and exercise caution when engaging with any company mentioned.
