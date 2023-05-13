@@ -27,4 +27,7 @@ Also the work environment is toxic
 ## Technosoftbd 
 amr 3 month's ar taka dai nai... 30k*3 = 90k. Tarpor ami job ta regaining dia chole aschi... Ami chole asar kichu din porei company nai hoya gece.…
 
-![Alt text](https://i.ibb.co/BBFYwyF/Screenshot-1.jpg) ![Alt text](https://i.ibb.co/3fkK4zS/Screenshot-2.png)
+## Screenshots
+
+![Alt text](https://i.ibb.co/BBFYwyF/Screenshot-1.jpg) 
+![Alt text](https://i.ibb.co/3fkK4zS/Screenshot-2.png)
